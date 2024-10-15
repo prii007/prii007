@@ -16,7 +16,7 @@
 - Fraud detection strategies, Google Ads optimization, and data-driven process improvement.
 
 📫 **How to reach me:**
-- [LinkedIn](https://www.linkedin.com/in/priyanka-malhotra) - Priyanka Malhotra
+- [LinkedIn]((https://www.linkedin.com/in/priyanka-malhotra07/)) - Priyanka Malhotra
 
 ⚡ **Fun fact:**
 - Born in India and raised in Nigeria, I love exploring different cultures and enjoy singing, dancing, and reading in my free time!
